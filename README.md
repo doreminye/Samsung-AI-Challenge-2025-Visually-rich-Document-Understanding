@@ -1,0 +1,1 @@
+# Samsung-AI-Challenge-2025-Visually-rich-Document-Understanding
